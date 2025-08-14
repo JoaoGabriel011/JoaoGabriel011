@@ -1,4 +1,4 @@
-### 🐱‍🏍 João Gabriel
+### 👾 João Gabriel
 
    <p align="left">
       <a href="https://github.com/JoaoGabriel011?tab=followers">
